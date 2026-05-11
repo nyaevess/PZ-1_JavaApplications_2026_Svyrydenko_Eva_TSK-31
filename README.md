@@ -11,6 +11,7 @@ ___
 
 ___
 
+<img width="1850" height="979" alt="image" src="https://github.com/user-attachments/assets/9843b3eb-aa9f-4892-951f-7bbafc7efe9a" />
 
 **Відповіді на контрольні питання**
 
